@@ -35,7 +35,7 @@
 
 ##To finish! 
 
-Add the pesto to the past and start to eat your delicious dish until you can't eat anymore. 
+Add the pesto to the pasta and start to eat your delicious dish until you can't eat anymore. 
 ![pasta pesto image](http://www.seriouseats.com/images/2016/02/20160209-finishing-pasta-pesto-vicky-wasik-9-2.jpg)
 
 
