@@ -22,7 +22,19 @@
 4. Add salt and black pepper as you like and mixt it with a spoon.    
 
 **PESTO MADE!** 
-![pesto image](http://theparkerpost.com/wp-content/uploads/2016/10/Karens-Pesto-Sauce-.jpg) 
+![pesto image](http://theparkerpost.com/wp-content/uploads/2016/10/Karens-Pesto-Sauce-.jpg)
 
+**Steps: How to cook the pasta** 
+
+1. Fill a little bit more that then half of the large pot of salted water.    
+2. Boil the salted water.  
+3. Add the spaghetti to the large pot and wait around 3 minutes if you want to get the pasta al dente. If not, wait around 8 to 10 minutes. 
+
+**PASTA DONE!** 
+![spaghetti](http://www.recipegirl.com/wp-content/uploads/2011/04/Baked-Lemon-Spaghetti-6.jpg) 
+
+**To finish** 
+Start to eat your delicious dish until you can't eat anymore. 
+![pasta pesto image](http://www.seriouseats.com/images/2016/02/20160209-finishing-pasta-pesto-vicky-wasik-9-2.jpg)
 
 
