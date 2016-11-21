@@ -28,7 +28,7 @@
 
 1. Fill a little bit more that then half of the large pot of salted water.    
 2. Boil the salted water.  
-3. Add the spaghetti to the large pot and wait around 3 minutes if you want to get the pasta al dente. If not, wait around 8 to 10 minutes. 
+3. Once the water is boiling, add the spaghetti to the large pot and wait around 3 minutes if you want to get the pasta al dente. If not, wait around 8 to 10 minutes. 
 
 ###PASTA DONE!   
 ![spaghetti](http://www.recipegirl.com/wp-content/uploads/2011/04/Baked-Lemon-Spaghetti-6.jpg) 
