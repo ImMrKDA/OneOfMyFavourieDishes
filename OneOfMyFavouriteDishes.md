@@ -16,7 +16,7 @@
 
 ###Steps: How to make the pesto
 
-1. Put the basil leaves, the parmesan, the pine nuts and the clove of garlic into the food processor and blend it.    
+1. Put the basil leaves, the parmesan cheese, the pine nuts and the clove of garlic into the food processor and blend it.    
 2. Once you blend it, add 100 milliliters of olive oil while you're blending it again.   
 3. After blending with the olive oil, add the grated parmesan cheese and blend it again.   
 4. Add salt and black pepper as you like and mixt it with a spoon.    
